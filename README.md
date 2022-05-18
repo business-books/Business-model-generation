@@ -1,4 +1,4 @@
-Strategic planning and <a href="https://e-book.business/business-model-generation/">business model generation PDF</a> is important for every business. One of the most popular tools is the Osterwalder business model. It is simple and effective, suitable for both developing and long-established companies. In this article we will talk about the history of the appearance of the model and analyze each block in detail.
+Strategic planning and <a href="https://businessmodel.cc/">business model generation PDF</a> is important for every business. One of the most popular tools is the Osterwalder business model. It is simple and effective, suitable for both developing and long-established companies. In this article we will talk about the history of the appearance of the model and analyze each block in detail.
 
 What is Osterwalder's business model?
 
